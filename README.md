@@ -1,4 +1,8 @@
-### Hi there 👋
+### Eai rapa, sou o Joãozin estudante do ctism, e to aqui so de burrice tamo junto flw
+
+###Segue o pae no insta
+https://www.instagram.com/egotisticaljoy/
+
 
 <!--
 **Pekynho/Pekynho** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
