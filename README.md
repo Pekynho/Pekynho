@@ -1,7 +1,9 @@
 ### Eai rapa, sou o Joãozin estudante do ctism, e to aqui so de burrice tamo junto flw
 
-###Segue o pae no insta
+Segue o pae no insta
 https://www.instagram.com/egotisticaljoy/
+
+
 
 
 <!--
